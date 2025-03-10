@@ -1,1 +1,1 @@
-Heitor Teixeira 2°DEV
+Heitor Teixeira e Suzanny Pinheiro 2°DEV
